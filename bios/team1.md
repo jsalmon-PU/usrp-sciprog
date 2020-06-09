@@ -1,1 +1,1 @@
-Hello my name is Satuye Lacayo. I am a rising Junior at Princeton University Studying Astrophysics.
+Hello my name is Satuye Lacayo. I am a rising Junior at Princeton University Studying Astrophysics. I am from Charlotte, NC and I live with my mom, my sister, and my dog Marco. 
